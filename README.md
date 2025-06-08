@@ -2,6 +2,12 @@
 这个资料，聚焦于健身、锻炼、饮食、营养，健康，睡眠等，持续更新中
 
 
+### 「欧阳春晓：6周维密薄肌线条弹力带普拉提」
+链接：https://pan.quark.cn/s/bf01bf597266
+
+### 「【keep VIP 付费运动健身教程合集】」
+链接：https://pan.quark.cn/s/d26de5becca9
+
 ###  中国八大菜系视频课（800道菜品）
 
 https://pan.quark.cn/s/ee2367c779ed
