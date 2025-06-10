@@ -1,6 +1,9 @@
 # healthy
 这个资料，聚焦于健身、锻炼、饮食、营养，健康，睡眠等，持续更新中
 
+[English](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=en) | [简体中文](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=zh-CN) | [繁體中文](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=zh-TW) | [日本語](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ja) | [한국어](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ko) | [हिन्दी](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=hi) | [ไทย](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=th) | [Français](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=fr) | [Deutsch](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=de) | [Español](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=es) | [Italiano](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=it) | [Русский](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ru) | [Português](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=pt) | [Nederlands](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=nl) | [Polski](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=pl) | [العربية](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ar) | [فارسی](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=fa) | [Türkçe](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=tr) | [Tiếng Việt](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=vi) | [Bahasa Indonesia](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=id)
+
+
 
 ### 「欧阳春晓：6周维密薄肌线条弹力带普拉提」
 链接：https://pan.quark.cn/s/bf01bf597266
