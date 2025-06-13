@@ -4,42 +4,8 @@
 [English](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=en) | [简体中文](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=zh-CN) | [繁體中文](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=zh-TW) | [日本語](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ja) | [한국어](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ko) | [हिन्दी](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=hi) | [ไทย](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=th) | [Français](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=fr) | [Deutsch](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=de) | [Español](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=es) | [Italiano](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=it) | [Русский](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ru) | [Português](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=pt) | [Nederlands](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=nl) | [Polski](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=pl) | [العربية](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=ar) | [فارسی](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=fa) | [Türkçe](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=tr) | [Tiếng Việt](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=vi) | [Bahasa Indonesia](https://openaitx.github.io/view.html?user=mswnlz&project=healthy&lang=id)
 
 
-
-### 「欧阳春晓：6周维密薄肌线条弹力带普拉提」
-链接：https://pan.quark.cn/s/bf01bf597266
-
-### 「【keep VIP 付费运动健身教程合集】」
-链接：https://pan.quark.cn/s/d26de5becca9
-
-###  中国八大菜系视频课（800道菜品）
-
-https://pan.quark.cn/s/ee2367c779ed
-
-### 「小狐极简翘臀健身训练课」
-
-链接：https://pan.quark.cn/s/cc5cfe59dd1e
-
-### 「瘦身·瑜伽课程·全套（超全超详细）」
-
-链接：https://pan.quark.cn/s/eb31b42ed288
-
-
-### 「食养指南（2024年版）」
-
-成人高尿酸血症与痛风食养指南（2024年版）等4项食养指南
-
-链接：https://pan.quark.cn/s/7f696479a4f0
-
-
- ### 想要专业健身指导？赛普健身专业视频教程来啦！
- 价值19800元，涵盖全面健身知识、科学训练方法与实战技巧。随时随地学习，助你塑造完美身材，提升健身技能。  
- 链接：https://pan.quark.cn/s/fbecc60b4525
-
- 
-
-### 「B站-零基础减脂塑形——男女适用」
-链接：https://pan.quark.cn/s/1b62aa915db7
-
+--------------
+[202505](202505.md)
 
 ---------------
 # 项目更多资源
